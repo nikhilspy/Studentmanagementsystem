@@ -141,6 +141,6 @@ Password: student
 
 
 ## For Sponsor or Projects Enquiry
-1. Email - hi@vijaythapa.com
-2. LinkedIn - [vijaythapa](https://www.linkedin.com/in/vijaythapa "Vijay Thapa on LinkedIn")
+1. Email - nikhilchemistry282@gmail.com
+2. LinkedIn - [Nikhil Srivastava](https://www.linkedin.com/in/nikhil-srivastava-9b372a1a1/ "Nikhil Srivastava on LinkedIn")
 
